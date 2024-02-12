@@ -1,0 +1,1 @@
+Hey this is clone for omegle
